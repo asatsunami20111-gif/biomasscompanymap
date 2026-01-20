@@ -1,0 +1,1 @@
+[[Material Goals]] - Add flame retardancy, water repellency, insulation, or antimicrobial attributes through bio-based treatments or structure control.

@@ -1,0 +1,1 @@
+[[Material Goals]] - Reduce batch variability typical of biomass feedstocks via standardised pre-treatment, blends, or biochemical processing.

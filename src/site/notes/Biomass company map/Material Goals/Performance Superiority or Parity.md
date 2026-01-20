@@ -1,0 +1,1 @@
+[[Material Goals]] - Achieve similar tensile strength, abrasion resistance, drape, breathability or leather-like properties compared with conventional fibres/leathers.

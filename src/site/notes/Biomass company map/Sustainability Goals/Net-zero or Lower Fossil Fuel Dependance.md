@@ -1,0 +1,1 @@
+[[Sustainability Goals]] - Replace petrochemical fibres (polyester, PU leather) with plant/microbial feedstocks.

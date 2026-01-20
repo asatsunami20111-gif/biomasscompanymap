@@ -1,0 +1,1 @@
+[[Material Goals]] - Drive down costs through integration with existing textile processes or by using low-cost feedstocks.

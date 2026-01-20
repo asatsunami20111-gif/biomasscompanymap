@@ -1,0 +1,1 @@
+[[Sustainability Goals]] - They often target lower lifecycle CO₂eq, plus reduced water use compared with cotton or synthetic leather processing.

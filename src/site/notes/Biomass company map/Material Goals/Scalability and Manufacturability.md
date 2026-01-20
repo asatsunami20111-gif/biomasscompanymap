@@ -1,0 +1,1 @@
+[[Material Goals]] - Move from lab/TRL to roll-to-roll textile production or mouldable leather substitutes at industrial scale.
